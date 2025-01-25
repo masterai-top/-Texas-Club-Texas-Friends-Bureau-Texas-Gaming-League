@@ -1,5 +1,5 @@
 # -Texas-Club-Texas-Friends-Bureau-Texas-Gaming-League
-出售德州扑克游戏俱乐部，德州私人局，朋友局游戏，产品精美代码质量靠谱。在线运营多年，里面有SNG，MTT，经典德州，大菠萝，短牌等七八种德州玩法；Telegram联系： @xuzongbin001或E-mail：masterai918@gmail.com
+出售德州扑克俱乐部代码，出售德州扑克源码，德州私人局，朋友局游戏，产品精美代码质量靠谱。在线运营多年，里面有SNG，MTT，经典德州，大菠萝，短牌等七八种德州玩法；Telegram联系： @xuzongbin001或E-mail：masterai918@gmail.com
 
 
 ![优化-9人桌](https://github.com/user-attachments/assets/6f1aa5bf-819d-4e26-bca8-99782a27d2ca)

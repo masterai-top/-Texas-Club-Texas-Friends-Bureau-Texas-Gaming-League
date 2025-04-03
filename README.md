@@ -1,4 +1,4 @@
-# -Texas-Club-Texas-Friends-Bureau-Texas-Gaming-League
+# -Texas-Club-Texas-Friends-Bureau-Texas-Gaming-League   HHpoker，wpk，德扑圈
 出售德州扑克俱乐部代码，出售德州扑克源码，德州私人局代码，朋友局游戏，产品精美代码质量靠谱。在线运营多年，里面有SNG，MTT，经典德州，大菠萝，短牌等七八种德州玩法，可以语音聊天，视频打牌，也支持联盟模式；Telegram联系： @xuzongbin001或E-mail：masterai918@gmail.com；声明：这款德州不是外包团队做的那些几千或者几万的德州产品，是真正市场上成功运营过的德州俱乐部，德扑圈，wpk等产品的竞争对手；
 
 
